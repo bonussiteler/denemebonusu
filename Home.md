@@ -1,1 +1,1 @@
-Welcome to the bonusverensiteler wiki!
+herkeş haho diyor
